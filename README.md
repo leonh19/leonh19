@@ -1,5 +1,5 @@
 # 💫 About Me:
-- I'm currently learning.<br>- I adapt easily.<br>- Teamwork enthusiast.<br>-Amateur runner.
+- I'm currently learning.<br> I adapt easily.<br> Teamwork enthusiast.<br> Amateur runner.
 
 
 ## 🌐 Socials:
